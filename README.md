@@ -1,1 +1,0 @@
-# Stroy_MAg
